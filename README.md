@@ -12,17 +12,16 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-<p align="center"><img src="https://64.media.tumblr.com/296abbda4df0f747dcebe5ba0d0ee4c4/9b360b95216ccc4d-c5/s640x960/dbf064e8cafd4e34367990091a883dd826285892.pnj"width="700">
- <p align="center"><img src="https://64.media.tumblr.com/539d4aa99aecb4cc2cbf33c6c90175cc/59444d7054955398-2c/s500x750/99cb0a24d20c9932bb01c81f817f824cb34b4571.gifv" width="700">
-<p align="center"><img src="https://64.media.tumblr.com/1c0d4cd30e510feca24b60dce3401192/9b360b95216ccc4d-46/s640x960/bf138bb6630457342e3d071ebb0bd1532485d867.pnj"width="700">
+<p align="center"><img src="https://64.media.tumblr.com/2f30f9d19c79cfec5a3a41c1d7832034/aea0cd110db2e7da-e4/s2048x3072/364eb2a873a1ca39fa6fca7b9c3ef396d150d75e.pnj"width="700">
+ <p align="center"><img src="https://64.media.tumblr.com/295410048c7bdec6da711e8f24727aeb/c241de22248f0b5d-05/s1280x1920/6b3100743ea858fd7670ca1aaaa243abb45ae4e9.pnj" width="700">
+<p align="center"><img src="https://64.media.tumblr.com/2f30f9d19c79cfec5a3a41c1d7832034/aea0cd110db2e7da-e4/s2048x3072/364eb2a873a1ca39fa6fca7b9c3ef396d150d75e.pnj"width="700">
   
 <p align="center"
-<p align="center"><img src="https://64.media.tumblr.com/a31fd0f8bb9afea2e2089fe08c5ab0bd/e7d74065fc3a0376-e1/s75x75_c1/66c7f06306e9206c6b6505dda0c9df289c07e4b4.gifv" width="40">   ꒰ nao ꒱ㅤㅤshe ﾉ they
+<p align="center"><img src="https://64.media.tumblr.com/e53aabe71e324090db43a29d96d3bc86/c387b93dab3d5644-65/s75x75_c1/b2c7935271159a233039b5898964bf36fdaa60ff.webp" width="20">   ꒰ nao ꒱ㅤ6teenㅤshe ﾉ they 
 <p align="center"
-  
-
-  
-  i get on pony town after monthsㅤ ;-;
+<p align="center"
+<p align="center"> ranked number one most annoying jane remover fan <img src="https://64.media.tumblr.com/822f8d8b73f81c79e05c5a84c647e371/8b76d125a93110fe-4d/s75x75_c1/f1c3bd1c80f3da13a53eb2f7a8f2546b3464b73b.gifv" width="20">
+<p align="center"
 
   
 
