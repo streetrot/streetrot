@@ -12,7 +12,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-<p align="center"><img src="https://64.media.tumblr.com/2f30f9d19c79cfec5a3a41c1d7832034/aea0cd110db2e7da-e4/s2048x3072/364eb2a873a1ca39fa6fca7b9c3ef396d150d75e.pnj"width="700">
  <p align="center"><img src="https://64.media.tumblr.com/295410048c7bdec6da711e8f24727aeb/c241de22248f0b5d-05/s1280x1920/6b3100743ea858fd7670ca1aaaa243abb45ae4e9.pnj" width="700">
 <p align="center"><img src="https://64.media.tumblr.com/2f30f9d19c79cfec5a3a41c1d7832034/aea0cd110db2e7da-e4/s2048x3072/364eb2a873a1ca39fa6fca7b9c3ef396d150d75e.pnj"width="700">
   
