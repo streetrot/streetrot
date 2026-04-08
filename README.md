@@ -26,5 +26,4 @@ Here are some ideas to get you started:
 
 <p align="center"
 
-<p align="center"><img src="https://64.media.tumblr.com/a5d1d45c78d6f6f65f685b2980106e2e/9b360b95216ccc4d-31/s250x400/8dab26584fdf6411f64526e754c12947989cdf0b.pnj"width="700">
-<p align="center"
+
