@@ -12,14 +12,14 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
- <p align="center"><img src="https://64.media.tumblr.com/295410048c7bdec6da711e8f24727aeb/c241de22248f0b5d-05/s1280x1920/6b3100743ea858fd7670ca1aaaa243abb45ae4e9.pnj" width="700">
-<p align="center"><img src="https://64.media.tumblr.com/2f30f9d19c79cfec5a3a41c1d7832034/aea0cd110db2e7da-e4/s2048x3072/364eb2a873a1ca39fa6fca7b9c3ef396d150d75e.pnj"width="700">
+ <p align="center"><img src="https://64.media.tumblr.com/7f1c0621586cd6f39acf982afbc9c9eb/d7a9e7dc53cf84c7-51/s1280x1920/7f3d471232b875858095f2d445072fe80aadd3bf.gifv" width="700">
+<p align="center"><img src="https://64.media.tumblr.com/017ec5bfc07ced82e53ade23fd9f0e9c/c5c0f7512d6fcde4-62/s1280x1920/71c15ec9bab128bd6ad85f07c247ebc7cdfb89df.gifv"width="700">
   
 <p align="center"
-<p align="center"><img src="https://64.media.tumblr.com/e53aabe71e324090db43a29d96d3bc86/c387b93dab3d5644-65/s75x75_c1/b2c7935271159a233039b5898964bf36fdaa60ff.webp" width="20">   ꒰ ㅤ7teenㅤshe ﾉ they 
+<p align="center"><img src="https://64.media.tumblr.com/59823d244c9a7611fd926407df7a2d64/98ec710d1724aa70-7c/s75x75_c1/ac5e4bed7adfbc9e19360f651703acf3772bc4ee.gifv" width="20">   ꒰ ㅤ7teenㅤshe ﾉ they 
 <p align="center"
 <p align="center"
-<p align="center"> ranked number one most annoying quannnic fan <img src="https://64.media.tumblr.com/822f8d8b73f81c79e05c5a84c647e371/8b76d125a93110fe-4d/s75x75_c1/f1c3bd1c80f3da13a53eb2f7a8f2546b3464b73b.gifv" width="20">
+<p align="center"> ranked number one most annoying quannnic fan <img src="https://64.media.tumblr.com/e66b3f37638717eef550f7e76bcca8d4/98ec710d1724aa70-c8/s75x75_c1/25f5a0ef0d5919ec47ee509e221b57b7e19ed12e.gifv" width="20">
 <p align="center"
 
   
